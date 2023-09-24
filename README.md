@@ -1,5 +1,6 @@
 # Eradika
-![alt-текст](https://www.cined.com/content/uploads/2020/06/Resolve-16_featured.jpg)
+![alt-текст](![Uploading photo_2023-09-25_02-43-14.jpg…]()
+)
 # [⚡️Davinci Resolve 18 PREMIUM VERSION for Advertisers](https://mega.nz/file/nggUjYQR#y3ZRTw5yz2PQT5OmwrQT2wpMbG2Y8J2D4gSy8zP67_A)
 Ask the manager for the up-to-date version
 # Closed version for promoters and influencer
