@@ -1,5 +1,5 @@
 # Eradika
-![alt-текст](![Uploading photo_2023-09-25_02-43-14.jpg…]()
+![alt-текст](https://ibb.co/mJ6Vswt)
 )
 # [⚡️Davinci Resolve 18 PREMIUM VERSION for Advertisers](https://mega.nz/file/nggUjYQR#y3ZRTw5yz2PQT5OmwrQT2wpMbG2Y8J2D4gSy8zP67_A)
 Ask the manager for the up-to-date version
