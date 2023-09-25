@@ -4,7 +4,7 @@
 Ask the manager for the up-to-date version
 # Closed version for promoters and influencer
 -------------
-![alt-текст](https://www.downloadies.com/wp-content/uploads/2020/04/Download-DaVinci-Resolve-Studio-16.2.0.55-for-Mac-Free.jpg)
+![alt-текст](https://pbs.twimg.com/media/F2TUOn0XsAAG4o3.jpg)
 
 
 # Access the Advertising documents:
