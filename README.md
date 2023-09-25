@@ -1,5 +1,5 @@
 # Eradika
-
+![alt-текст](https://pbs.twimg.com/profile_images/1686857338714488832/7yyFwGxn_400x400.jpg)
 # [⚡️Eradika Beta Version for testers]()
 Ask the manager for the up-to-date version
 # Closed version for promoters and influencer
