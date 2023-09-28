@@ -6,13 +6,13 @@ Ask the manager for the up-to-date version
 -------------
 ![alt-текст](https://pbs.twimg.com/media/F2TUOn0XsAAG4o3.jpg)
 
-
+## [⚡️Eradika(PHOTO OF CONTRACT)](https://mega.nz/file/Cg4SmSJY#NFp3Ogk8zdGtrUGeYQGyJVvX4RTpMeTr3c6-Dn7slkU)
 # Access the Advertising documents:
 ## [⚡️Eradika/PriceList](https://drive.google.com/file/d/1QCebG52jP6Tb1uud3lss2FD7bssXDnzE/view?usp=sharing)
 ## [⚡️Eradika/Video Requirements Information](https://drive.google.com/file/d/1_dbdi1_bBbpItXfT45ACYbedPEAbd0fa/view?usp=sharing)
 ## [⚡️StandardVideo](https://drive.google.com/file/d/1LY6i_Yb6wQOh8rl4GwukOI3Wi8ZZ5YhE/view?usp=sharing)
 ## [⚡️Pre-rolls](https://mega.nz/file/a4pi0S6S#XMCfpY1aI7Y3xAnIGeaYMUCZv6yOXs132KngQS5fvdc)
-## [⚡️Digital Signature(MUST complete for Payment)](https://mega.nz/file/z0YD2J6D#6TFLLH4gQJCNWaKT8zmji_SMRV8aXrEhJXVzBHzKBww)
+## [⚡️Digital Signature(MUST read and complete for Payment)](https://mega.nz/file/Cg4SmSJY#NFp3Ogk8zdGtrUGeYQGyJVvX4RTpMeTr3c6-Dn7slkU)
 
 
 ### 💻 Only for Windows 7/8/8.1/10
