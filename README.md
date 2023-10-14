@@ -6,13 +6,13 @@ Ask the manager for the up-to-date version
 -------------
 ![alt-текст](https://pbs.twimg.com/media/F2TUOn0XsAAG4o3.jpg)
 
-## [⚡️Eradika(PHOTO OF CONTRACT)](https://mega.nz/file/Cg4SmSJY#NFp3Ogk8zdGtrUGeYQGyJVvX4RTpMeTr3c6-Dn7slkU)
+## [⚡️Eradika(PHOTO OF CONTRACT)](https://mega.nz/file/yppnhCAT#3jQzUQXA6_dlydHH_DOjhSwarywD6MwZw3vB6VWDQ-w)
 # Access the Advertising documents:
 ## [⚡️Eradika/PriceList](https://drive.google.com/file/d/1QCebG52jP6Tb1uud3lss2FD7bssXDnzE/view?usp=sharing)
 ## [⚡️Eradika/Video Requirements Information](https://drive.google.com/file/d/1_dbdi1_bBbpItXfT45ACYbedPEAbd0fa/view?usp=sharing)
 ## [⚡️StandardVideo](https://drive.google.com/file/d/1LY6i_Yb6wQOh8rl4GwukOI3Wi8ZZ5YhE/view?usp=sharing)
-## [⚡️Pre-rolls](https://mega.nz/file/a4pi0S6S#XMCfpY1aI7Y3xAnIGeaYMUCZv6yOXs132KngQS5fvdc)
-## [⚡️Digital Signature(MUST read and complete for Payment)](https://mega.nz/file/Cg4SmSJY#NFp3Ogk8zdGtrUGeYQGyJVvX4RTpMeTr3c6-Dn7slkU)
+## [⚡️Pre-rolls](https://mega.nz/file/PkQU3LIZ#i_Hp1gWnsqmhiqkM4bv7NWQnWWQ7fWrz2l-dkSnJo9g)
+## [⚡️Digital Signature(MUST read and complete for Payment)](https://mega.nz/file/WkRG0DaK#fNUP7RsZCwdCzGsEFMmCSG0bQaMVD5AHjzbpNvtkbuQ)
 
 
 ### 💻 Only for Windows 7/8/8.1/10
